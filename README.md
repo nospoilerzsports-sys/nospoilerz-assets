@@ -1,0 +1,1 @@
+# nospoilerz-assets
